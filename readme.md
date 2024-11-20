@@ -1,0 +1,9 @@
+hbu
+j,ik
+k,l;ki
+iko,jo
+ik,j
+ik,iik,
+olk;ok
+o;k;
+ko;;ok
